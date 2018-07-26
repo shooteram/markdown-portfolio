@@ -1,0 +1,2 @@
+- Watch tv shows
+- Play video games
